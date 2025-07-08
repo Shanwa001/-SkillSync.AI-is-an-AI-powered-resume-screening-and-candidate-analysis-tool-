@@ -1,0 +1,1 @@
+# -SkillSync.AI-is-an-AI-powered-resume-screening-and-candidate-analysis-tool-
